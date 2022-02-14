@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Unstopabble5355
+- 👋 Hi, I’m Stuti
 - 👀 I’m interested in coding,music and studies
 - 🌱 I’m currently learning coding,maths,guitar and from school
 - 💞️ I’m looking to collaborate on games
